@@ -9,3 +9,5 @@
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: listening music, knitting, playing violin
 
+[Twitter - @srdevemp](https://twitter.com/srdevemp)
+[youtube - @srdevemp](https://www.youtube.com/UCv05T2Cj0m1e2qy-3lzfyHw)
